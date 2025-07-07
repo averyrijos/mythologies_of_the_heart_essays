@@ -27,8 +27,6 @@ Footnotes sprawl like nervous systems. Subway stations hum as Deleuzian war mach
 The dead speak back. Bureaucracy is dissected in unsent letters.  
 And silence — the gaps — becomes a methodology of revolt.
 
-> *“Writing is that neutral, composite, oblique space where our subject slips away, the negative where all identity is lost, starting with the very identity of the body writing.”* — *Roland Barthes, The Pleasure of the Text*
-
 🔗 **What you’ll find here**:  
 - A rhizomatic essay that deterritorializes Barthes’ *Mythologies* into generative architectures for dreaming.  
 - A *Politics of the Dreamable*: a praxis to conjure what is yet unrealized into the Real.  
